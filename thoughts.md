@@ -6,4 +6,5 @@
 2. My second strategy is to take better notes, as they may differ from the lesson a little bit.
 
 Shoutouts!
-I have so many shoutouts. First to my partner Chaz, who is also in Mod 0, who has been my rock in calming me down. Second to my sister Janika who is also a student here at Turing for keeping my head straight. 
+I have so many shoutouts. First to my partner Chaz, who is also in Mod 0, who has been my rock in calming me down. Second to my sister Janika who is also a student here at Turing for keeping my head straight.
+HEY!
